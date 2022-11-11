@@ -1,2 +1,2 @@
-# resurselgbt
+# Resurse LGBT
 Resurse LGBT
